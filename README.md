@@ -24,7 +24,7 @@ denysxavier.github at outlook.com
 
 ### ⚡ Fun fact:
 
-Did you know my first degree isn't in CS? I first graduated in 2006 in Languages (Portuguese/English). I was also a teacher for about 3 years before changing carrer.
+Did you know my first degree isn't in CS? I first graduated in 2006 in Languages (Portuguese/English). I was also a teacher for about 3 years before changing career.
 
 [ pt-BR ]
 
